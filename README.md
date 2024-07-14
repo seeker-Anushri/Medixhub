@@ -1,1 +1,1 @@
-# Medixhub
+All rights reserved by AnushritaDey
